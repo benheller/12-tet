@@ -2,7 +2,7 @@
 
 12-TET is a [microgrants](https://en.wikipedia.org/wiki/Microgrant) program supporting:
 - Creative and research projects. Interest areas include:
-    - Climate and ecology
+    - Climate, ecology and agriculture
     - Music, cinema, and the arts
     - Gender and identity
     - Personal and spiritual growth
