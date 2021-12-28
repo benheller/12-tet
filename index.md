@@ -1,6 +1,6 @@
 ![](logo.png)
 
-12-TET is a microgrants program supporting:
+12-TET is a [microgrants](https://en.wikipedia.org/wiki/Microgrant) program supporting:
 - Creative and research projects. Interest areas include:
     - Climate and ecology
     - Music, cinema, and the arts
