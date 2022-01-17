@@ -10,7 +10,7 @@
     - Science and technology
     - Homelessness
     - Prison reform
-- Cash supplements to alleviate personal emergencies
+- Cash assistance to alleviate personal emergencies
     - Rent or food
     - Car or home repairs
     - Medical or legal fees
