@@ -23,4 +23,4 @@ Grants are awarded on a rolling basis and are paid via Venmo in one or more tran
 
 12-TET is a small initiative and our goal is to work with 7-10 applicants in 2022. We apologize if we are unable to assist you at this time and look to expand our program in the coming years.
 
-Apply [here](https://forms.gle/TxWhFv6VXYqnmMMX9)
+**[APPLY HERE](https://forms.gle/TxWhFv6VXYqnmMMX9)**
