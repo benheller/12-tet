@@ -21,6 +21,9 @@ We are a small group of like-minded folks who believe it's as important to give 
 
 Grants are awarded on a rolling basis and are paid via Venmo in one or more tranches based on grant scope and timeline. 12-TET is not a registered non-profit and all grants are personal donations between donor and recipient.
 
-12-TET is a small initiative and our goal is to work with 7-10 applicants in 2022. We apologize if we are unable to assist you at this time and look to expand our program in the coming years.
+12-TET is a small initiative and our goal is to work with 5-7 applicants in 2023. We apologize if we are unable to assist you at this time and look to expand our program in the coming years.
+
+## Recent Grants
+- Cash assistance to help someone living in their car secure reliable housing
 
 **[APPLY HERE](https://forms.gle/TxWhFv6VXYqnmMMX9)**
