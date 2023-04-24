@@ -25,5 +25,7 @@ Grants are awarded on a rolling basis and are paid via Venmo in one or more tran
 
 ## Recent Grants
 - Cash assistance to help someone living in their car secure reliable housing
+- Cash assistance to provide hearing aids for a jazz vocalist and teacher
+- Two arts grants to support avant-garde poets and musicians in the Philadelphia area
 
 **[APPLY HERE](https://forms.gle/TxWhFv6VXYqnmMMX9)**
