@@ -21,11 +21,13 @@ We are a small group of like-minded folks who believe it's as important to give 
 
 Grants are awarded on a rolling basis and are paid via Venmo in one or more tranches based on grant scope and timeline. 12-TET is not a registered non-profit and all grants are personal donations between donor and recipient.
 
-12-TET is a small initiative and our goal is to work with 5-7 applicants in 2026. We apologize if we are unable to assist you at this time and look to expand our program in the coming years.
+12-TET is a small initiative and our goal is to work with 5-7 applicants per year. We apologize if we are unable to assist you at this time and look to expand our program in the coming years.
 
 ## Recent Grants
 - Cash assistance to help someone living in their car secure reliable housing
 - Cash assistance to provide hearing aids for a jazz vocalist and teacher
 - Two arts grants to support avant-garde poets and musicians in the Philadelphia area
 
-**[APPLY HERE](https://forms.gle/TxWhFv6VXYqnmMMX9)**
+Grant applications are currently in review and we are no longer accepting new applications at this time. We will be opening applications again once the current applicants have been served.
+
+<!-- **[APPLY HERE](https://forms.gle/TxWhFv6VXYqnmMMX9)** -->
